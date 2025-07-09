@@ -1,0 +1,1 @@
+# snapfood-privacy-policy
